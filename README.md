@@ -39,7 +39,7 @@
 <p><a href="https://gitlab.com/jonh2i/hfgd/-/raw/main/shenyun4.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频: 顶级艺术 -009fcc?logoWidth=1" title="视频: 顶级艺术" alt="视频:  顶级艺术"></a></p>   
 <p><a href="https://gitlab.com/david3w/fdfhdr/-/raw/main/vd12.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/ 有足够证据证明天安门自焚事件完全是假的 -009fcc?logoWidth=1" title=" 有足够证据证明天安门自焚事件完全是假的 "></a></p>  
 <p><a href="https://gitlab.com/demwed/bfcb/-/raw/main/tc1400.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/ 过去1400人死亡的真相已经澄清。 -009fcc?logoWidth=1" title=" 过去1400人死亡的真相已经澄清。"></a></p>  
-<p><a href="https://gitlab.com/babybirth/cvnx/-/raw/main/sukien254.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/ 你知道4月25日的惊天事件是什么吗？ -009fcc?logoWidth=1" title=" 你知道4月25日的惊天事件是什么吗？"></a></p>  
+<p><a href="https://gitlab.com/hotname2/dygds/-/raw/main/gy16.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/ 你知道4月25日的惊天事件是什么吗？ -009fcc?logoWidth=1" title=" 你知道4月25日的惊天事件是什么吗？"></a></p>  
 <p><a href="https://gitlab.com/jonh2l/xcvm/-/raw/main/vd13.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频:  善惡有報是天理-009fcc?logoWidth=1" title="视频:善惡有報是天理 "></a></p> 
   
 <img src="/anh/haha.jpg"><br>
@@ -57,7 +57,7 @@
    
   
 <p><a href="https://gitlab.com/keleydi/bjhf/-/raw/main/dp1.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频:大法洪传 -009fcc?logoWidth=1" title="视频: 大法洪传" alt="视频: 大法洪传"></a></p>
-<p><a href="https://gitlab.com/kellywoud/vofdh/-/raw/main/9chuchanngon.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/奇妙的九字真言-009fcc?logoWidth=1" title=" 奇妙的九字真言 " alt="奇妙的九字真言 "></a></p>  
+<p><a href="https://gitlab.com/birthblu/lhuf/-/raw/main/kw22.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/奇妙的九字真言-009fcc?logoWidth=1" title=" 奇妙的九字真言 " alt="奇妙的九字真言 "></a></p>  
 <p><a href="https://gitlab.com/kellywoul/vckh/-/raw/main/dp4.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频:大法洪传 -009fcc?logoWidth=1" title="视频: 大法洪传" alt="视频: 大法洪传"></a></p>  
 <p><a href="https://gitlab.com/kellyword/ffjg/-/raw/main/gt1.mp4" target=_blank><img width="330" height="40" src="https://img.shields.io/badge/视频:苏醒 (女声独唱) -009fcc?logoWidth=1" title="视频:苏醒 (女声独唱) " alt="视频:苏醒 (女声独唱) "></a></p>  
   
